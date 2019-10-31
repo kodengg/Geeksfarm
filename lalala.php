@@ -1,0 +1,3 @@
+Bismillah
+
+Jadi gini . . .
