@@ -1,3 +1,0 @@
-Bismillah
-
-Jadi gini . . .
